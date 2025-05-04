@@ -1,6 +1,6 @@
 <p align="center">
 
-SEVEN ノ AUBREE ノ SIXTY ࿔
+SEIL ノ AUBREE ノ AZURE ࿔
 
 tkn ⸸ block freely
   
