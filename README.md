@@ -1,6 +1,6 @@
 <p align="center">
 
-SEIL ノ AUBREE ノ AZURE ࿔
+SEIL ノ VANITY
 
 tkn ⸸ block freely
   
