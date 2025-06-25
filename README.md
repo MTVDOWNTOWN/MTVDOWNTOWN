@@ -1,7 +1,7 @@
 SEIL  །   UNPLEZ  །   VANITY
 
-tkn ⸸ block freely
+single ⸸ block freely
   
-tcc + old friends dni ◞ if my name is censored im probably muted.
+no dni ◞ if my name is censored im probably muted.
 
 
