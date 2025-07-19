@@ -1,3 +1,1 @@
-hi im renard wip no dni 
-
-
+i lowkey forgot how to work this shit so
